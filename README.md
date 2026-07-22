@@ -2,8 +2,15 @@ lorelorelore -- endoverdosing
 
 lore you may ask? heres lore! look at it! attention! yes!
 
-pls note this is a project of mine going through my thoughts as a normal 16 year old, born 2009 
+pls note this is a project of mine going through my thoughts as a normal 16 year old
 
 i plan on keeping this alive i'll be adding more normal thoughts of mine
 
 HAH i realized i said project! the feeling of self worth is back maybe i won't kill my self and this isn't illegal what a relief
+
+one note i'll stay here perm, i am in current and constant high alert, i am nervous 24/7 of something bad will happen so i will everything down or something thats important or speaks to me and make the file it's theme or folder it's subject
+
+for example if i'm scared, i'll create an emotions folder & create scared.txt
+
+i am sorry for anyone i've caused harm too
+i am growing and i'm just human a normal human
