@@ -14,6 +14,3 @@ this feeling has just been amplified start of date: wed july 22 12:50
 so i will everything down or something thats important or speaks to me and make the file it's theme or folder it's subject
 
 for example if i'm scared, i'll create an emotions folder & create scared.txt
-
-i am sorry for anyone i've caused harm too
-i am growing and i'm just human a normal human
